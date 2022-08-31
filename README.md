@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @eric-vs.
+- 👀 I’m interested in learning.
+- 🌱 I’m currently learning to collaborate.
+- 💞️ I’m looking to collaborate on reaching me.
+- 📫 How to reach me using @eric-vs.
